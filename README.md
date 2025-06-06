@@ -6,3 +6,5 @@
 ---
 
 ## 📬 Você vai me encontrar aqui
+- ✉️ Email: **bernardodemaria7@gmail.com**  
+- 💼 [LinkedIn](www.linkedin.com/in/bernardo-demaria-767648347)  
